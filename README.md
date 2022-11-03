@@ -1,2 +1,2 @@
 # herobase.infinizai
-oaooaoaoaooaoaoaooaoaoo
+heroblock infinizai.
